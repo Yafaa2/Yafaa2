@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **khaledkhedr31@gmail.com**
 
-- 📄 Resume [https://drive.google.com/file/d/1QxfNnfQ-Lk-0WmqrcqAUPMThrGE1Tc9i/view?usp=drive_link]
+- 📄 Resume [https://drive.google.com/file/d/1gm41ulT-jIB9mNn67oiZTQyiMpsdxps2/view?usp=sharing]
 
 - ⚡You can call me **Yafa**
 
